@@ -1,0 +1,1 @@
+# Aplicativo-de-Colagem-100-completo-
